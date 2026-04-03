@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I'm a story-teller passionate about creative narrative driven games.<br>
+I'm a story-teller passionate about creative solutions.<br>
 
 
 ## 🌐 Socials:
